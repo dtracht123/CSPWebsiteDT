@@ -22,4 +22,4 @@ Created a week-long program for elementary school children: organized activities
 ## Socials
 Instagram: @danielleltr
 
-Facebook: ![https://www.facebook.com/danielle.trachtenberg.18/](https://www.facebook.com/danielle.trachtenberg.18/)
+Facebook: [https://www.facebook.com/danielle.trachtenberg.18/](https://www.facebook.com/danielle.trachtenberg.18/)
