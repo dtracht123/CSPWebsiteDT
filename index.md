@@ -1,5 +1,3 @@
-# Danielle Trachtenberg
-
 ![Pic](https://www8.lunapic.com/do-not-link-here-use-hosting-instead/159035753363685252?9637879304)
 
 ## Education
@@ -24,4 +22,4 @@ Created a week-long program for elementary school children: organized activities
 ## Socials
 Instagram: @danielleltr
 
-Facebook: https://www.facebook.com/danielle.trachtenberg.18/
+Facebook: ![https://www.facebook.com/danielle.trachtenberg.18/](https://www.facebook.com/danielle.trachtenberg.18/)
